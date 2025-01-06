@@ -1,1 +1,1 @@
-'ikan asin'
+'Kiryuu_Store 351'
